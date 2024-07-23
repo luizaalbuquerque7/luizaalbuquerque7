@@ -4,4 +4,4 @@
 - 🌱 Atualmente estou Estudando para cursar psicologia
 - ⚡ Qualidades: Costumo ser uma pessoa bastante proativa e dedicada aos meus projetos
 
-  ☪ ·̩　　 ｡　☆　　　ﾟ ＊ 　 ｡*　　+　 　＊ 　･ ｡☆͙ 　☆　　　*
+  ·̩　　 ｡　☆　　　ﾟ ＊ 　 ｡*　　+　 　＊ 　･ ｡☆͙ 　☆　　　*
